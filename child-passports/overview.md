@@ -4,12 +4,6 @@ It should take 3 weeks to get the passport - [use the 1 week Fast Track service]
 
 ^ Use a different service to [apply for a passport from outside the UK](/overseas-passports).
 
-If you’re in the UK, you can:
-
-- [fill in your information online](/apply-renew-passport) then print and post your form, photos and documents to the address on the form (you can't use the Post Office Passport Check and Send service if you fill in the form online)
-- get a paper form from a [Post Office that offers the Passport Check and Send service](http://www.postoffice.co.uk/passport-check-send)
-- [contact the Passport Adviceline](/passport-advice-line) to get a form posted to you
-
 ## Filling in the paper form
 
 ### Applying for a first child passport
