@@ -1,14 +1,14 @@
+Apply for a child passport if your child's under 16. It costs £46 and is valid for 5 years.
+
+It should take 3 weeks to get the passport - [use the 1 week Fast Track service](/get-a-passport-urgently) if you need it urgently.
+
+^ Use a different service to [apply for a passport from outside the UK](/overseas-passports).
+
 If you’re in the UK, you can:
 
 - [fill in your information online](/apply-renew-passport) then print and post your form, photos and documents to the address on the form (you can't use the Post Office Passport Check and Send service if you fill in the form online)
 - get a paper form from a [Post Office that offers the Passport Check and Send service](http://www.postoffice.co.uk/passport-check-send)
 - [contact the Passport Adviceline](/passport-advice-line) to get a form posted to you
-
-There’s a different way to [get a passport for your child if you’re outside the UK](/overseas-passports).
-
-## How long it takes
-
-It should take 3 weeks to get the passport - use the [1-week Fast Track service](/get-a-passport-urgently) if you need it urgently. 
 
 ## Filling in the paper form
 
