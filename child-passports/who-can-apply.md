@@ -2,19 +2,7 @@ Your child must have [British nationality](/types-of-british-nationality) to be 
 
 A child passport is valid for 5 years.
 
-##Who can apply
 
-You can usually apply for a passport for your child if: 
-
-- they're 15 or under 
-- you have '[parental responsibility](/parental-rights-responsibilities/who-has-parental-responsibility)' for them
-
-You need to get ‘written consent’ from other people with parental responsibility if:
-
-- your child’s passport has been lost or stolen - get written consent from the person who signed the application form for their last passport
-- your child has changed their name - get written consent from everyone with parental responsibility
-
-'Written consent' is a signed and dated letter from the person saying they agree to your child getting a new passport.
 
 ##Who signs the form
 
